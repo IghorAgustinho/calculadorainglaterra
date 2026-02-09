@@ -1,2 +1,2 @@
   Feita por: tioteus.
-Para os gerentes da Inglaterra.
+Para os gerentes (GTA RP FIVEM)
